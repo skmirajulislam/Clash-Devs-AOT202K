@@ -1,4 +1,4 @@
-# 🏆 ClashDevs AOT 2025 – 1st Place Winning Project
+# 🏆 ClashDevs AOT 2025 – 1st Place Winning Team
 
 ## 🔔 Announcement
 
